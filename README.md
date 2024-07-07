@@ -1,2 +1,2 @@
 # CE314-Computer-Science-NLP
-CE314  Computer Science NLP , add me wechat Yooo932851
+CE314  Computer Science NLP , add me wechat ye1-6688
